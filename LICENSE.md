@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Sketch for macOS extension with smart Extension for Sketch for macOS - color correction and blend modes. Featuring color correction and blend modes, it's the best
 
 
 
